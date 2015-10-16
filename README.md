@@ -1,0 +1,2 @@
+# Dilip-Cherian---Founder-of-Perfect-Relations
+Dilip Cherian, associate at Baird’s CMC, brings to the firm his deep expertise in public relations and communications. He is the founder of Perfect Relations, South Asia’s largest image management and communications consulting firm. An economist and management consultant by training, Dilip’s communications plans are founded on solid business objectives, ensuring that his creative teams never lose sight of their goals.He is the founder of Perfect Relations, South Asia’s largest image management and communications consulting firm.
